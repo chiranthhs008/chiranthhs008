@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **hschiranth63@gmail.com**
 
-- 📄 Know about my experiences [https://chiranth-h-s-resume.tiiny.site](https://chiranth-h-s-resume.tiiny.site)
+- 📄 Know about my experiences [[https://chiranth-h-s-resume.tiiny.site](https://chiranthhs.tiiny.site)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
